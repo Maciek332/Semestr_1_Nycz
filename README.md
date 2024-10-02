@@ -1,1 +1,1 @@
-'# NoD - Nycz Szymon' 
+# NoD - Nycz Szymon
