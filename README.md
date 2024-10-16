@@ -1,1 +1,1 @@
-# NoD - Nycz Szymon
+# Semestr 1 - Nycz Szymon
